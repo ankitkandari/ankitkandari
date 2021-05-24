@@ -32,3 +32,4 @@
 - Click on the cross button on right side of your current tab
 - Follow me
 - Search about me
+- Google this "ankit singh kandari"
