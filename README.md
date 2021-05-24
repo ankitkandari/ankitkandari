@@ -24,7 +24,7 @@
 - Think - it makes me inquisitive
 - Explore - on stackoverflow and google
 
-# :sleepy: Ok i know you are tired . Read this
+# :sleepy: Ok I know you are tired . Read this
 > *Keep calm and carry on.*
 
 # :heart: How can you help me
