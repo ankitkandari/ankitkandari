@@ -24,4 +24,11 @@
 - Think - it makes me inquisitive
 - Explore - on stackoverflow and google
 
-# :dizzy: Really bored of google's monopoly , need some ninjas to break it
+# Ok i know you are tired . Read this
+> *Keep calm and carry on.*
+
+# How can you help me
+- Invite me to collaborate
+- Click on the cross button on right side of your current tab
+- Follow me
+- Search about me
