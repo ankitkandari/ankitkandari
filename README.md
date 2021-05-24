@@ -24,10 +24,10 @@
 - Think - it makes me inquisitive
 - Explore - on stackoverflow and google
 
-# Ok i know you are tired . Read this
+# :sleepy: Ok i know you are tired . Read this
 > *Keep calm and carry on.*
 
-# How can you help me
+# :heart: How can you help me
 - Invite me to collaborate
 - Click on the cross button on right side of your current tab
 - Follow me
